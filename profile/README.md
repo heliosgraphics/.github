@@ -1,3 +1,3 @@
 # Helios
 
-A new way to build apps.
+A better way to build.
