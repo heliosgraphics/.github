@@ -1,3 +1,3 @@
 # Helios
 
-A better way to build.
+[discord.gg/mzuGkCHTKv](https://discord.gg/mzuGkCHTKv)
